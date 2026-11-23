@@ -31,5 +31,4 @@ We sell corner sofas, recliners, sofa beds, real leather sofas, armchairs and ga
 
 [Facebook](https://facebook.com/HomeflairRotherham) · [Instagram](https://instagram.com/homeflair_rotherham) · [TikTok](https://www.tiktok.com/@homeflair) · [YouTube](https://www.youtube.com/channel/UC5NTWOWB5ExB5gCIy6nbibg) · [Pinterest](https://www.pinterest.com/homeflairrotherham/) · [X](https://x.com/homeflairoutlet)
 
----
-YMAI LTD T/A Homeflair · Company No. 13507197
+
